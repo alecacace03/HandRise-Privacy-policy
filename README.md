@@ -1,0 +1,1 @@
+# HandRise-Privacy-policy
